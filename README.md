@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Java**
 
-- 📫 Cómo llegar a mí **juancevallos1425@gmail.com**
+- 📫 How to reach me **juancevallos1425@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
